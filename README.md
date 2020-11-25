@@ -1,1 +1,0 @@
-# ingstra.github.io
